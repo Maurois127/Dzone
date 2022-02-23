@@ -32,7 +32,7 @@ For more silly pics follow me on pinterest [MauroisJM](https://www.pinterest.ph/
 People have differet tastes in music but I like any genre as long as it is pleasiong for my ears. The artists I listen to are [Mac de Marco](https://www.youtube.com/channel/UCqnMk5GA1spXDiHYFcPN-eA), [NCT](https://www.youtube.com/c/nctsmtown), [TWICE](https://www.youtube.com/channel/UCzgxx_DM2Dcb9Y1spb9mUJA), [Mitski](https://www.youtube.com/channel/UC-GjYlrAWIHgwNDnbFHZ77g), [Passion Pit](https://www.youtube.com/channel/UCntk9NLvX49igtJnFY2IaIQ), and many more.
 
 ### Here are some of my recommended songs:
-- [My kind of woman by Marc de Marco](https://youtu.be/_R3B2Xr8kwQ)
+- [My kind of woman by Mac de Marco](https://youtu.be/_R3B2Xr8kwQ)
 - [I can't handle change by Roar](https://youtu.be/R7IQ9dpxxJY)
 - [To Kingdom Come by Passion Pit](https://youtu.be/xh0ueJN5rvA)
 - [Poppy by Zee Avi](https://youtu.be/zRTodeBE-so)
