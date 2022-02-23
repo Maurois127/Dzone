@@ -6,15 +6,18 @@ I'll use this website as my coping zone, where I can go to when I want to remini
 
 I want this website to be beneficial to you and me. You and I might have something in common. Check it out 
 
+## A little info about my name lol
+
 ### Maurois
 It's pronounced as "Maura". I got my first name from a French author, Andre Maurois. I don't know why my parents named me after him but I like it anyway.  
+
 ### Juza
 I never knew why my second name is Juza. I asked my parents about it and the answer I got was "We'll tell you when you turn 18". I feel kind of exited to turn 18.
 
 ## Apple of my eye
+I love funny pictures of animals. They make my heart flutter and I go soft.
 
 ### Here, I want to put pictures of the things that gives me comfort. 
-I love funny pictures of animals. They make my heart flutter and I go soft.
 <img src="https://i.pinimg.com/originals/72/da/b4/72dab448bb367be81aa25499816ac68c.jpg" width="150">
 <img src="https://i.pinimg.com/originals/ab/cc/b8/abccb8d87d82794374901f4aa03eda5e.jpg" width="150">
 <img src="https://i.pinimg.com/originals/2e/dc/af/2edcaf5aa9e9fdcd0f1841c794226eb1.jpg" width="150">
@@ -32,12 +35,13 @@ People have differet tastes in music but I like any genre as long as it is pleas
 - [My kind of woman by Marc de Marco](https://youtu.be/_R3B2Xr8kwQ)
 - [I can't handle change by Roar](https://youtu.be/R7IQ9dpxxJY)
 - [To Kingdom Come by Passion Pit](https://youtu.be/xh0ueJN5rvA)
-- [Little Secrets by Passion Pit](https://youtu.be/ScC_pi3PJ9k)
 - [Poppy by Zee Avi](https://youtu.be/zRTodeBE-so)
 - [I want you by Mitski](https://youtu.be/1-kO12tP3SE)
 - [Villain by Stella Jang](https://youtu.be/R-kWrXyIe4k)
-- [La Seine and I](https://youtu.be/S2V6jF79X7Q)
-- [Watching him fading away](https://youtu.be/x8cFcSq4EIs)
+- [La Seine and I by Vanessa Paradis](https://youtu.be/S2V6jF79X7Q)
+- [My youth by NCT Dream](https://youtu.be/U3m82WG_5pI)
+- [Darari by TREASURE](https://youtu.be/cXCwKMvt9wE)
+- [Dive into you by NCT Dream](https://youtu.be/hlrP9GXTx84)
 
 ## Stories to read and watch
 I read mangas, short stories, and some books.
