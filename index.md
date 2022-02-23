@@ -32,7 +32,7 @@ I love funny pictures of animals. They make my heart flutter and I go soft.
 For more silly pics follow me on pinterest [MauroisJM](https://www.pinterest.ph/chrielaunee/_saved/).
 
 ## Taste in music
-People have differet tastes in music but I like any genre as long as it is pleasiong for my ears. The artists I listen to are [Mac de Marco](https://www.youtube.com/channel/UCqnMk5GA1spXDiHYFcPN-eA), [NCT](https://www.youtube.com/c/nctsmtown), [TWICE](https://www.youtube.com/channel/UCzgxx_DM2Dcb9Y1spb9mUJA), [Mitski](https://www.youtube.com/channel/UC-GjYlrAWIHgwNDnbFHZ77g), [Passion Pit](https://www.youtube.com/channel/UCntk9NLvX49igtJnFY2IaIQ), and many more.
+People have differet tastes in music but I like any genre as long as it is pleasing for my ears. The artists I listen to are [Mac de Marco](https://www.youtube.com/channel/UCqnMk5GA1spXDiHYFcPN-eA), [NCT](https://www.youtube.com/c/nctsmtown), [TWICE](https://www.youtube.com/channel/UCzgxx_DM2Dcb9Y1spb9mUJA), [Mitski](https://www.youtube.com/channel/UC-GjYlrAWIHgwNDnbFHZ77g), [Passion Pit](https://www.youtube.com/channel/UCntk9NLvX49igtJnFY2IaIQ), and many more.
 
 ### Here are some of my recommended songs:
 - [My kind of woman by Mac de Marco](https://youtu.be/_R3B2Xr8kwQ)
