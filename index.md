@@ -14,6 +14,9 @@ It's pronounced as "Maura". I got my first name from a French author, Andre Maur
 ### Juza
 I never knew why my second name is Juza. I asked my parents about it and the answer I got was "We'll tell you when you turn 18". I feel kind of exited to turn 18.
 
+### Didy/Diday
+My name Didy came from my friend's idea. I have no idea why my nickname is Diday, but my sisters said that my brother called me Diday when I was a baby. The "D" in Dzone means Didy/Diday. 
+
 ## Apple of my eye
 I love funny pictures of animals. They make my heart flutter and I go soft.
 
